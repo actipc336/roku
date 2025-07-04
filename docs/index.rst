@@ -6,7 +6,7 @@ How to Contact Roku TV Customer Service?
    :caption: Contents:
 
 
-.. image:: https://how-to-contact-nordpass-customer-service.readthedocs.io/en/latest/_images/click-service.png
+.. image:: https://blogger.googleusercontent.com/img/a/AVvXsEiTZCEwiDWoD3VtdXUL3jnv2UMSrI-4X5-dUvVhGsq1OzzqpWmG1nakbDKKrqB5ArVm7Ia9Z_ywDw_gz7rEJyMlh0wTfnLit1Cpcdhl5CKD1H6aGmEsd4m0HxY7JbZlZnfbNAQIGBb527pgyrV7yxxbVwuCPReFPPt2sh-PPJXnMoyIxo423MipmL0L1Iq-=s302
    :alt: My Project Logo
    :width: 400px
    :align: center
