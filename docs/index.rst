@@ -6,11 +6,6 @@ How to Contact Roku TV Customer Service?
    :caption: Contents:
 
 
-.. image:: https://blogger.googleusercontent.com/img/a/AVvXsEiTZCEwiDWoD3VtdXUL3jnv2UMSrI-4X5-dUvVhGsq1OzzqpWmG1nakbDKKrqB5ArVm7Ia9Z_ywDw_gz7rEJyMlh0wTfnLit1Cpcdhl5CKD1H6aGmEsd4m0HxY7JbZlZnfbNAQIGBb527pgyrV7yxxbVwuCPReFPPt2sh-PPJXnMoyIxo423MipmL0L1Iq-=s302
-   :alt: My Project Logo
-   :width: 400px
-   :align: center
-   :target: https://getchatsupport.live/
 
 
 Roku TV has become a household name for streaming entertainment, offering users a user-friendly and affordable way to access their favorite content. Whether it's movies, live TV, sports, or streaming apps, Roku TV brings everything together into one simplified platform. However, like any technology product, users may occasionally need support to resolve issues or answer questions. Roku TV customer service plays a critical role in delivering a positive experience and ensuring that users can fully enjoy their devices.
